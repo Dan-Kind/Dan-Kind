@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dan-Kind
-- 👀 I’m interested in crypto, web-dev, python
+-  Музыка уносит нас в другие места
 - 📫 dankindarts@gmail.com
-DanKind#9107
-Momento Mori 
+- DanKind#9107
+- Momento Mori 💀
