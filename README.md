@@ -2,4 +2,4 @@
 -  Музыка уносит нас в другие места
 - 📫 dankindarts@gmail.com
 - DanKind
-- Memento Mori 💀
+
